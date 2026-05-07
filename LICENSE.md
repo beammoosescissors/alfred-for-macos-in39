@@ -1,4 +1,4 @@
-
+Alfred for macOS best Extension - database templates and dark mode is the best Alfred for macOS extension, featuring database templates and dark mode. Safe, efficient, and
 
 
 
